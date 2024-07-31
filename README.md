@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://dowardc.vercel.app/](https://dowardc.vercel.app/)
 
-- 📫 How to reach me **caparasdounhuward@gmail.com**
+- 📫 How to reach me Email: **caparasdounhuward@gmail.com** || Mobile number: +63 967 925 4057
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
